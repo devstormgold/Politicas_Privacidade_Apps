@@ -77,7 +77,7 @@ Podemos atualizar esta Política de Privacidade periodicamente. Quaisquer altera
 
 Se você tiver dúvidas, preocupações ou solicitações relacionadas a esta Política de Privacidade, entre em contato conosco:
 
-- **E-mail:** devstormgold
+- **E-mail:** devstormgold@gmail.com
 
 ---
 
